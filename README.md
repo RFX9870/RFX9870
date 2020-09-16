@@ -1,5 +1,6 @@
-### Hi there 👋
+### inaktiv gang ,,<<1!!
 
+### а где звук епта
 <!--
 **RFX9870/RFX9870** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
